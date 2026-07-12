@@ -1,4 +1,4 @@
-# 👋 About Me — Internee.pk Virtual Internship
+# 👋 About Me, Internee.pk Virtual Internship
 
 **Name:** Laiba Amjad
 
